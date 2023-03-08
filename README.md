@@ -1,4 +1,4 @@
-### [Hi there 👋](https://feridhacizade.com/)
+### (https://feridhacizade.com/)
 
 
 <!--
